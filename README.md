@@ -1,2 +1,2 @@
 # New Otp Bot Soon
-- https://discord.gg/aSncK6nDr8
+- https://discord.gg/YCu4DKPqp8
